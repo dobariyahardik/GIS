@@ -1,5 +1,5 @@
 ---
-title: "Global fossil age, how long will fossil resources last?"
+ Global fossil age, how long will fossil resources last?
 
 ---
 
